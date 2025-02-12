@@ -1,0 +1,1 @@
+Kvietimas į seminarą
